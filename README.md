@@ -20,4 +20,6 @@ Feb 8, 2025. I didnt updated? (feb 10) Oh I was on the job hunt. sadly my final 
 
 Feb 9 , 2025 - It was sunday, go to church, spend a short walk and yeah inspired and motivated to pursue being SOFTWARE ENGINEER.
 
-Feb 10, 2025 - Motitvated to pursue my passion.
+Feb 10, 2025 - Motivated to pursue my passion.
+
+Feb 11, 2025 - Another day, another productivity
