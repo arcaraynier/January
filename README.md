@@ -23,3 +23,5 @@ Feb 9 , 2025 - It was sunday, go to church, spend a short walk and yeah inspired
 Feb 10, 2025 - Motivated to pursue my passion.
 
 Feb 11, 2025 - Another day, another productivity
+
+Feb 12, 2025 - Another productive and tiring day because I job hunt. sunburst -> jaro -> sm city -> Strata -> sm city -> southpoint -> go home.
