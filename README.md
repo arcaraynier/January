@@ -25,3 +25,5 @@ Feb 10, 2025 - Motivated to pursue my passion.
 Feb 11, 2025 - Another day, another productivity
 
 Feb 12, 2025 - Another productive and tiring day because I job hunt. sunburst -> jaro -> sm city -> Strata -> sm city -> southpoint -> go home.
+
+Feb 13, 2025 - Another day and another job hunt.
