@@ -31,3 +31,5 @@ Feb 13, 2025 - Another day and another job hunt.
 Feb 14, 2025 - Another day to be progress
 
 Feb 18, 2025 - Another day to find a job.
+
+March 2, 2025 - you have now a job!! prepared!!
