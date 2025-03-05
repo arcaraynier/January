@@ -34,3 +34,4 @@ Feb 18, 2025 - Another day to find a job.
 
 March 2, 2025 - you have now a job!! prepared!!
 March 3, 2025 - have worked. fun and tired. imma sleep now. 10:34 pm
+March 5, 2025 - 11:26. sigh feeling tired and overwhelm
