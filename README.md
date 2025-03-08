@@ -36,3 +36,4 @@ March 2, 2025 - you have now a job!! prepared!!
 March 3, 2025 - have worked. fun and tired. imma sleep now. 10:34 pm
 March 5, 2025 - 11:26. sigh feeling tired and overwhelm
 March 6, 2025 - 8:31 am sigh. overwhelm and geez
+March 7, 2025 - didn't update, forgot, 2 am nakapuli birthday juren, airport shat
