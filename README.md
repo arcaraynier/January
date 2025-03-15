@@ -38,7 +38,5 @@ March 5, 2025 - 11:26. sigh feeling tired and overwhelm
 March 6, 2025 - 8:31 am sigh. overwhelm and geez
 March 7, 2025 - didn't update, forgot, 2 am nakapuli birthday juren, airport shat
 
-mar h 9 janiuy to siomai
-yeah
-
-hshs
+marCh 9 janiuay to siomai
+March 15, 2025 - Uratex -> Last duty of Sir Renz. 8pm patudlo reimage.
