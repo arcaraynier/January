@@ -40,3 +40,6 @@ March 7, 2025 - didn't update, forgot, 2 am nakapuli birthday juren, airport sha
 
 marCh 9 janiuay to siomai
 March 15, 2025 - Uratex -> Last duty of Sir Renz. 8pm patudlo reimage.
+
+
+March 17, sovefehelm and pressure 
