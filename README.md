@@ -43,3 +43,4 @@ March 15, 2025 - Uratex -> Last duty of Sir Renz. 8pm patudlo reimage.
 
 
 March 17, sovefehelm and pressure 
+March 17, 2025 11:48 overtime ty naman, pag abot ko ari di si kekel, manang lyn, nong jerson, mika, manang faith, peter and kaykay ara sila sasagwa naga tambay kag ga istoryahanay, so happy and wala lang. nagpaleganes sila daan mga 11:20 na sila kapauli, with kids.
