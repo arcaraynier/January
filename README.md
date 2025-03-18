@@ -44,3 +44,9 @@ March 15, 2025 - Uratex -> Last duty of Sir Renz. 8pm patudlo reimage.
 
 March 17, sovefehelm and pressure 
 March 17, 2025 11:48 overtime ty naman, pag abot ko ari di si kekel, manang lyn, nong jerson, mika, manang faith, peter and kaykay ara sila sasagwa naga tambay kag ga istoryahanay, so happy and wala lang. nagpaleganes sila daan mga 11:20 na sila kapauli, with kids.
+
+March 18, 2025 - Before birthday ni nanay, 6 am akon duty nag in ko 5:40am then si alexander heramis ang naka duty, oficially resign na si sir renz, then new IT then new OJT wala ko kabalo ano tudlo ko sa OJT diosko kag gasala pako sa process sang reimaging. 5:40 am ko in out ko mga 5:10, diosko nga duty sobra pako sa may ginagatas. then nagpashorthaircut si manang jen.
+
+March 19, 2025 - Its nanay's birthday! happy 65th birthday nanay I love you. wishing you good health!. its 3:30 am here, may duty pako 6 am karon. I hope indi ko mag overtime. hay buhay.
+
+
