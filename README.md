@@ -17,7 +17,7 @@ Feb 6, 2025. jobhunting
 Feb 7, 2025. Keep moving forward
 
 Feb 8, 2025. I didnt updated? (feb 10) Oh I was on the job hunt. sadly my final interview failed..
-je
+je.
 Feb 9 , 2025 - It was sunday, go to church, spend a short walk and yeah inspired and motivated to pursue being SOFTWARE ENGINEER.
 
 Feb 10, 2025 - Motivated to pursue my passion.
