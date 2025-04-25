@@ -14,7 +14,7 @@ January 30, 2025. still finding
 
 Feb 6, 2025. jobhunting.
 
-Feb 7, 2025. Keep moving forward..
+Feb 7, 2025. Keep moving forward...
 
 Feb 8, 2025. I didnt updated? (feb 10) Oh I was on the job hunt. sadly my final interview failed..
 je.
