@@ -63,3 +63,5 @@ April 14, 2025 - Sigh sigh sigh, study networking and web dev
 
 
 April 16, 2025.
+
+May 14, 2025 - start of renovating house of tita neng and to joey.
