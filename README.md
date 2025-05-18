@@ -8,7 +8,7 @@ Jan 26, 2025. applying ....
 ..
 Jan 27, 2025. same q......
 j
-Jan 29, 2025. same...
+Jan 29, 2025. same....
 .,..
 January 30, 2025. still finding
 
@@ -65,3 +65,5 @@ April 14, 2025 - Sigh sigh sigh, study networking and web dev
 April 16, 2025.
 
 May 14, 2025 - start of renovating house of tita neng and to joey.
+
+MAy 18, 2025 - birthday ni lolo waray, and go to church and cemetery
