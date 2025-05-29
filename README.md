@@ -67,3 +67,4 @@ April 16, 2025.
 May 14, 2025 - start of renovating house of tita neng and to joey.
 
 MAy 18, 2025 - birthday ni lolo waray, and go to church and cemetery
+May 29, 2025- tita neng to narita, hehe.  duty today. 9-6
